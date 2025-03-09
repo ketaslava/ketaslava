@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning economic since
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me: ketaslava@gmail.com
-- 😄 Pronouns: she
-- ⚡ Fun fact: ...
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: She spent her entire childhood learning mechatronics
